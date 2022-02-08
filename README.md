@@ -1,0 +1,4 @@
+- 🤠 Hi, I’m @SimonRosellys.
+- 👨‍💻 I’m interested in career swapping into coding.
+-  ⬆ I’m currently on Northcoders.
+- 📧 How to reach me on Slack.
