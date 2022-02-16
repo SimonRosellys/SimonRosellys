@@ -1,4 +1,4 @@
 - 🤠 Hi, I’m @SimonRosellys.
-- 👨‍💻 I’m interested in career swapping into coding.
+- 👨‍💻 I’m changing my medical tech career to coding.
 -  ⬆ I’m currently on Northcoders.
 - 📧 How to reach me on Slack.
