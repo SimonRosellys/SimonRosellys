@@ -1,4 +1,5 @@
 - 🤠 Hi, I’m @SimonRosellys.
 - 👨‍💻 I’m changing my medical tech career to coding.
 -  ⬆ I’m a Northcoders graduate.
-- 📧 How to reach me on Slack.
+- 📧 www.linkedin.com/in/simon-rosellys 
+- 😁 SimonRosellys@aol.com
